@@ -1,4 +1,4 @@
-$\color{pink}{\text{✦}}$ㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{red}{\text{he}}$ $\color{pink}{\text{/}}$ $\color{Orange}{\text{she}}$ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤ $\color{pink}{\text{✦}}$ㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{red}{\text{he}}$ $\color{pink}{\text{/}}$ $\color{Orange}{\text{she}}$ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\color{red}{\text{bisexual}}$ $\color{pink}{\text{/}}$ $\color{Orange}{\text{lesbian}}$ ㅤㅤㅤ  $\color{pink}{\text{ 我 }}$ 
 
 
