@@ -1,1 +1,3 @@
-$\color{Red}{\text{he / any }}$ $\color{Beige}{\text{autumn / yutako / gigiuu}}$
+$\color{Red}{\text{he / any }}$ 
+$\color{Pink}{\text{⍺ʋȶꭎⴅꬻ / ყꭎƚαӄ𑄝 / ꬶiԍiuꭎ}}$ 
+$\color{Beige}{\text{always roblox zone}}$
