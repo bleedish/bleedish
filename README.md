@@ -1,1 +1,1 @@
-$\color{Cyan}{\text{    he his }}$ $\color{beige} ㅤㅤㅤ{\text{ w2i sumtimes . }}$ $\color{Cyan}{\text{ (ꈍ⁠ᴗ⁠ꈍ ⁠) }}$ <img width="73" height="73" alt="3d90c56075f2d2a27df8d135e746ec6b" src="https://github.com/user-attachments/assets/19f5ce37-0743-4a74-88bb-0e07d274ef9b" />
+$\color{Red}{\text{he / any }}$ $\color{Beige}{\text{autumn / yutako / gigiuu}}$
